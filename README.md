@@ -2,3 +2,4 @@
 pendejos
 
 La Katherine no se baña
+Rodrigo es pendejo
